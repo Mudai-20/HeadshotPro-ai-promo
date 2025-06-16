@@ -8,10 +8,13 @@ In today’s digital-first world, **your headshot is your first impression**. Wh
 
 And for a **limited time**, you can get an **exclusive 50% OFF** using our **verified HeadshotPro AI promo codes**!  
 
-# 👉 **Claim Your 50% Discount Now:**  
-# **[https://www.headshotpro.com/?via=SAVE50](https://www.headshotpro.com/?via=SAVE50)**  
+# 👉 Claim Your 50% Discount Now: 
 
--
+[![Discount Butan](https://github.com/user-attachments/assets/17aa686f-db44-4a66-97a3-c6737d2dcac7)](https://www.headshotpro.com/?via=SAVE50)
+
+[![Discount button](https://github.com/user-attachments/assets/d75ecc28-d18d-49c5-8338-1cbb31a98b89)](https://www.headshotpro.com/?via=SAVE50) 
+
+
 
 ![image](https://github.com/user-attachments/assets/623f556c-9413-490c-afab-09c95fb84b0e)
 
